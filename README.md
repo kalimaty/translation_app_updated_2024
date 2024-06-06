@@ -12,3 +12,8 @@
 
 
 ![1](https://github.com/kalimaty/translation_app_updated_2024/assets/105967966/c68088a3-4037-42ab-b91d-1478ac55cd61)
+
+
+
+
+![4](https://github.com/kalimaty/translation_app_updated_2024/assets/105967966/07f90853-72d8-451c-b01a-cb550c20bb5e)
